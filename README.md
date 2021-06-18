@@ -1,3 +1,3 @@
 # Vlad Balan
 
-Looking to evolve.
+Looking to evolve...
